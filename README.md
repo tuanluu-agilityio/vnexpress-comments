@@ -1,0 +1,1 @@
+Collect all comments from a topic on vnexpress.net
